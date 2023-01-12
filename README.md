@@ -1,0 +1,2 @@
+# bergurdavidsen.github.io
+yes
